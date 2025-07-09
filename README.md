@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on **web development**.
 - 📫 How to reach me: **You can reach me via email at abdulmuqsit931@gmail.com** or through my LinkedIn profile abdulmuqsit.
 - 😄 Pronouns: **He/Him** 
-- ⚡ Fun fact: **I can solve a Rubik's Cube in under five minutes!** 
 
 
 <!---
